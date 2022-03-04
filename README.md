@@ -1,4 +1,4 @@
-# Barredo-DavidAndre-Code
+# Introduction of Myself
 
 I'm David Andre S. Barredo and you can call me David or Andre. I'm from Manila City and currently staying at Quezon City.
 
